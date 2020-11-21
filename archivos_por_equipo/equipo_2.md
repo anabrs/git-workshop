@@ -16,5 +16,5 @@ Following the February Revolution in 1917, the Romanov family and their loyal se
 
 The Soviets finally acknowledged the murders in 1926, following the publication in France of a 1919 investigation by a White émigré, but said that the bodies were destroyed and that Lenin's Cabinet was not responsible. The Soviet cover-up of the murders fuelled rumours of survivors. Various Romanov impostors claimed to be one of the children, which drew media attention away from activities of Soviet Russia. From 1938, Joseph Stalin suppressed any discussion regarding the fate of the family.
 
-
-Cambios 12345566756756756
+YYYYYYYYYYYYYYYYyyyyyyyyyyyyyyyyyyyyyyYYYYYYYYYYYYYYYYYYYyyyyyyyyyyyyyyYYYYYY
+Cambios 3333333333333333333333333333333333333333333333333333333333333333333333333333333333333333333
