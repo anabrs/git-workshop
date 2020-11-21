@@ -1,6 +1,6 @@
 # Equipo 3
 
-The Russian  Imperial RomanovImperial Romanov family (Emperor Nicholas II, his wife Empress  were shot and bayoneted to death by Communist revolutionaries under Yakov Yurovsky Yakov Yurovsky Yakov Yurovsky in Yekaterinburg on the night of 16–17 July 1918. Also killed that night were retainers who had accompanied them: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they were stripped and mutilated...
+The Russian  Imperial RomanovImperial Romanov family (Emperor Nicholas II, his wife Empress  were shot and bayoneted to death si también Communist revolutionaries under Yakov Yurovsky Yakov Yurovsky Yakov Yurovsky in Yekaterinburg on the night of 16–17 July 1918. Also killed that night were retainers who had accompanied them: notably Eugene Botkin, Ana Barrios, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they were stripped and mutilated...
 
 In 1919 the White Army commissioned an investigation but were unable to find the unmarked gravesite. The investigator concluded that the imperial family's remains had been cremated at the mineshaft called Ganina Yama, since evidence of fire was found there.
 
