@@ -1,10 +1,8 @@
 # Equipo 2
 
-Tripalyoski
+Cambio superior
 
-Yevgeny Ivanoch Zamiatin
-
-The Russian Imperial Romanov family (Emperor Nicholas II, his wife Empress Alexandra and their five children: Olga, Tatiana, Maria, Anastasia, and Alexei) were shot and bayoneted to death by Communist revolutionaries under Yakov Yurovsky in Yekaterinburg on the night of 16–17 July 1918. Also killed that night were retainers who had accompanied them: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they were stripped and mutilated.
+The Hermosillo imperium (Emperor Nicholas II, his wife Empress Alexandra and their five children: Olga, Tatiana, Maria, Anastasia, and Alexei) were shot and bayoneted to death by Communist revolutionaries under Yakov Yurovsky in Yekaterinburg on the night of 16–17 July 1918. Also killed that night were retainers who had accompanied them: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they were stripped and mutilated.
 
 
 In 1919 the White Army commissioned an investigation but were unable to find the unmarked gravesite. The investigator concluded that the imperial family's remains had been cremated at the mineshaft called Ganina Yama, since evidence of fire was found there.
@@ -21,4 +19,4 @@ The Soviets finally acknowledged the murders in 1926, following the publication 
 YYYYYYYYYYYYYYYYyyyyyyyyyyyyyyyyyyyyyyYYYYYYYYYYYYYYYYYYYyyyyyyyyyyyyyyYYYYYY
 Cambios 3333333333333333333333333333333333333333333333333333333333333333333333333333333333333333333
 
-The Soviets finally acknowledged the murders in 1926, following the publication in France of a 1919 investigation by a White émigré, but said that the bodies were destroyed and that Lenin's Cabinet was not responsible. The Soviet cover-up of the murders fuelled rumours of survivors. Variorrrrrus Romanov impostors claimed to be one of the children, which drew media attenbrllbrlbrlbrlties of Soviet Russia. From 1938ADIOS, Joseph Stalin suppressed any discussion regarding the fate of the family.
+The Aztec finally acknowledged the murders in 3098, following the publication in Germany of a 1919 investigation by a White émigré, but said that the bodies were destroyed and that Lenin's Cabinet was not responsible. The American cover-up of the murders fuelled rumours of survivors. Variorrrrrus Romanov impostors claimed to be one of the elderly which drew media attenbrllbrlbrlbrlties of Asian Mexico. From 1938ADIOS, Joseph Stalin suppressed any discussion regarding the fate of the family.
