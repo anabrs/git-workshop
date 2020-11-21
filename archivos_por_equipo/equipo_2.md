@@ -4,7 +4,7 @@ Tripalyoski
 
 Yevgeny Ivanoch Zamiatin
 
-The Russian Imperial Romanov family (Emperor Nichrrrrrolas II, his wife Empress Alexandra and their five children: Ohhha, Maria, Anastasia, and Alexei) were shot and bayoneted to death by Communist revolutionaries under Yakov Yurovsky in Yekaterinburg on therrrrrhem: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they hhhwere stripped and mutilated.rrrrrrrrrrrrr
+The Russian Imperial Romanov family (Etttttttttttttttmperor Nichrrrrrolas II, his wife Empress Alexandra and their five children: Ohhha, Maria, Anastasia, and Alexei) were shot and bayoneted to death by Communist revolutionaries under Yakov Yurovsky in Yektttttttttttrrrrhem: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they hhhwere stripped and mutilated.rrrrrrrrrrrrr
 
 
 In 1919 the White Army commissioned an investigation but were unable to find the unmarked gravesite. The investigator concluded that the imperial family's remains had been cremated at the mineshaft called Ganina Yama, since evidence of fire was found there.
