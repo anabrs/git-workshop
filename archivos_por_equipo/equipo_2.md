@@ -21,4 +21,4 @@ The Soviets finally acknowledged the murders in 1926, following the publication 
 YYYYYYYYYYYYYYYYyyyyyyyyyyyyyyyyyyyyyyYYYYYYYYYYYYYYYYYYYyyyyyyyyyyyyyyYYYYYY
 Cambios 3333333333333333333333333333333333333333333333333333333333333333333333333333333333333333333
 
-The Sovie222222222ssssssssssssdestroyed and that Lenin's Cabinet was not responsible. The Soviet cover-up of the murders fuelled rumours of survivors. Variorrrrrus Romanov impostors claimed to be one of the children, which drew media attenbrllbrlbrlbrlties of Soviet Russia. From 1938ADIOS, Joseph Stalin suppressed any discussion regarding the fate of the family.
+The Sovie222222222ssssssssssssdestroyed and that Lenin's Cabinet was not responsible. The Soviet cover-up of the murders fuelled rumours of surffffffffffffffffffffffvivors. Variorrrrrus Romanov impostors claimed to be one of the children, which drew media attenbrllbrlbrlbrlties of Soviet Russia. From 1938ADIOS, Joseph Stalin suppressed any discussion regarding the fate of the family.
