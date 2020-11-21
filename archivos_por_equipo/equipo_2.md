@@ -4,9 +4,9 @@ Cambio superior
 
 Yevgeny Ivanoch Zamiatin
 
-The Russian Imperial Romanov family (Etttttttttttttttmperor Nichrrrrrolas II, his wife Empress Alexandra and their five tttttttttttttttt Anastasia, and Alexei) were shot and bayoneted to death by Communist revolutionaries under Yakov Yurovsky in Yektttttttttttrrrrhem: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they hhhwere stripped and mutilated.rrrrrrrrrrrrr
+The Russian Imperial Romanov family (Etttttttttttttttmperor Nichrrrrrolas II, his wife Empress Alexandra and their five tttttttttttttttt Anastasia, and Alexei) were shot and bayoneted to death by Communrrrrrrrrrrrrrrrrrrrrrist revolutionaries under Yakov Yurovsky in Yektttttttttttrrrrhem: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they hhhwere stripped and mutilated.rrrrrrrrrrrrr
 
-The Hermosillo imperium (Emperor Nicholas II, his wife Empress Alexandra and their ftttttttttttttttttttttterinburg on the night of 16–17 July 1918. Also killed that night were retainers who had accompanied them: notably Eugene Botkin, Anna Demidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they were stripped and mutilated.
+The Hermosillo imperium (Emperor Nicholas II, his wife Empress Alexandra and their ftttttttttttttttttttttterinburg on the rrrrrrrrrrrrrrmidova, Alexei Trupp and Ivan Kharitonov. The bodies were taken to the Koptyaki forest, where they were stripped and mutilated.
 
 In 1919 the White Army commissioned an investigation but were unable to find the unmarked gravesite. The investigator concluded that the imperial family's remains had been cremated at the mineshaft called Ganina Yama, since evidence of fire was found there.
 
